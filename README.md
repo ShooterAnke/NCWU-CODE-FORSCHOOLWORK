@@ -1,0 +1,2 @@
+# NCWU-CODE-FORSCHOOLWORK
+For school works
